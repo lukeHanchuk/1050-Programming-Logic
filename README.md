@@ -4,3 +4,5 @@
 ![Lab3A Screenshot 1](https://github.com/user-attachments/assets/fb199d8e-2ca0-4a41-8162-837da6fc9045)
 ###[Jdoodle.com](https://www.jdoodle.com/ia/1kQu)
 ![Lab3A Screenshot 2](https://github.com/user-attachments/assets/e0207a99-5e64-4046-bb85-3a75197dba7e)
+###[Jdoodle.com](https://www.jdoodle.com/ia/1kQu)
+![Lab3A Screenshot 3](https://github.com/user-attachments/assets/e0144e98-a399-4aa7-ae8d-decfb4073353)
